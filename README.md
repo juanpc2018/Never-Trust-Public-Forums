@@ -16,7 +16,8 @@ Not solve real problems.
 Not give real help.
 
 in microsoft are called "Volunteers"
-its all a scam.
+
+forums are a scam.
 
 https://youtu.be/8iQKnefUJNg
 
