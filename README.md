@@ -19,3 +19,4 @@ in microsoft are called "Volunteers"
 its all a scam.
 
 https://youtu.be/8iQKnefUJNg
+https://youtu.be/7xOPxRcJoSQ
