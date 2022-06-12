@@ -5,10 +5,9 @@ forums like
 answers.microsoft.com
 kubuntuforums.net duc.avid.com
 
-the admins are working for BigTech,
-to protect BigTech...
-
-the only job is protect the image of BigTech,
+the admins are working to protect BigTech...
+the job is protect the image of BigTech,
+and pretend they are helping.
 redirect people to buy BigTech products,
 counterincentive, disincentive, discourage, deterrent, demoralize, suppress people.
 
