@@ -3,7 +3,7 @@ Never go to Forums.
 
 forums like
 answers.microsoft.com
-kubuntuforums.net
+kubuntuforums.net duc.avid.com
 
 the admins are working for BigTech,
 to protect BigTech...
