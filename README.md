@@ -10,7 +10,7 @@ to protect BigTech...
 
 the only job is protect the image of Big Tech,
 redirect people to buy Big Tech products,
-counterincentive, disincentive people using Alternate options like Linux.
+counterincentive, disincentive, discourage, deterrent people.
 
 Not solve real problems.
 Not give real help.
