@@ -10,7 +10,7 @@ to protect BigTech...
 
 the only job is protect the image of BigTech,
 redirect people to buy BigTech products,
-counterincentive, disincentive, discourage, deterrent people.
+counterincentive, disincentive, discourage, deterrent, demoralize people.
 
 Not solve real problems.
 Not give real help.
